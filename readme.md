@@ -1,0 +1,1 @@
+https://eblog.fly.dev/startingsystems1.html#1-series-introduction
